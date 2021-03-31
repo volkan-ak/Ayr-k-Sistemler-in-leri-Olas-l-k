@@ -1,1 +1,0 @@
-# Ayr-k-Sistemler-in-leri-Olas-l-k
